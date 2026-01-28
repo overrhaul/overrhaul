@@ -10,4 +10,6 @@
 
 [ata🕸️](https://lawzos.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎[straw⛓️](https://nighthiide.straw.page) ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎‎ ‎[my art🗝️](https://zol.straw.page)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zk3kqasav3276idzo94kiu70w&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=808080&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 ![](https://file.garden/aIrFR9W4twp1wUOQ/tumblr_56b0a5170b6137d8d000d2e29a7eaf68_0752c357_1280.png)
